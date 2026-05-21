@@ -63,9 +63,9 @@ Production-oriented multi-agent orchestration systems with sequential, parallel,
 
 # 🌐 Connect With Me
 
-- LinkedIn: www.linkedin.com/in/erayozer
+- LinkedIn: www.linkedin.com/in/erayoozer
 - Medium: https://medium.com/@ozereray22
-- Email: ozereraymicro@hotmail.com
+- Email: ozereray44@gmail.com
 
 ---
 
